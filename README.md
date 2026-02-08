@@ -1,0 +1,1 @@
+# matematik-analiz-fanidan-tayyorgarlik
